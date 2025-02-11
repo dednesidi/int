@@ -7,8 +7,8 @@ hello!! i'll greatly appreciate it if you whisper to interact, otherwise i'll li
 
 he/him >> other pronouns; i don't really care if you misgender me, but i do prefer he/him. 
 
-c + h freely, i don't mind. but i might not respond or ignore you, my social skills are rather poor. please forgive me if that happens, thank you. 
+c + h freely, i don't mind. but i might not respond or talk to you, my social skills are rather poor. please forgive me if that happens.
 
 crowding overwhelms me, i might stop noticing messages entirely. if that happens, i apologize sincerely, please repeat via whisper after it gets less crowded.
 
-do not ask for personal information unless we're friends. i am not looking for roleplay (unless stated otherwise) and relationships, please don't approach me if that is your only goal.
+do not ask for personal information unless we're friends. i am not looking for roleplay (unless stated otherwise) and relationships, please don't approach me if that's what you want.
