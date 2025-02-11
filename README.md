@@ -11,4 +11,4 @@ c + h freely, i don't mind. but i might not respond or ignore you, my social ski
 
 crowding overwhelms me, i might stop noticing messages entirely. if that happens, i apologize sincerely, please repeat via whisper after it gets less crowded.
 
-do not ask for personal information unless we're friends. 
+do not ask for personal information unless we're friends. i am not looking for roleplay (unless stated otherwise) and relationships, please don't approach me if that is your only goal.
