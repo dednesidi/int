@@ -1,4 +1,4 @@
-# int
+# for pony town players :)
 please read this before interaction. thank you.
 
 ![2748BE8C-2B1A-43BF-8205-7B6B2440625B](https://github.com/user-attachments/assets/ad60e9ec-34cd-4bae-8cdd-3a14d4f2784a)
